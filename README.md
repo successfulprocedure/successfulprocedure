@@ -1,9 +1,6 @@
 <p align="center">
-<img width="730" height="562" alt="image" src="https://media.discordapp.net/attachments/1399233309648883723/1452073072822718474/IMG_8669.png?ex=69487bee&is=69472a6e&hm=e9f35118aa847ea1587174edd3db6a119ae14068a83193221ba446095cfb4fa2&=&format=webp&quality=lossless&width=930&height=930" />
-<br/>
-<p align="center">
-₊✩‧₊˚౨ৎ˚₊✩‧₊
-
-
-<p align="center"> Hi im buggy im a big fan of eddsworld (i love you matt)
-
+  <img src="https://komarev.com/ghpvc/?username=successfulprocedure&color=blueviolet&label=ــــــــــﮩ٨ـ">
+  <br/>
+  <br/>
+  <p align="center">
+  <img src="https://file.garden/aSd5lebnTCh3RN_v/tumblr_d8f9224f486dfaea57b0f3f4cbe6f93c_c4aeed7d_75.webp" width="20" height="20"> " eins , zwei , drei .. ugh , i do not think we brought enough bodybags . "
